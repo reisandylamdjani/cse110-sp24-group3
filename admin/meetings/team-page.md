@@ -25,8 +25,14 @@ https://github.com/camman00
 https://github.com/ILayon
 * Into digital art and graphic design
   
+##### James
+https://github.com/j-a-ouyang
+* Wants to go to New Zealand
+* Added to our group late
+    
 ##### Jesus Azpitarte
 https://github.com/azpi-arte
+* Likes deftones and art
 
 ##### Logan Corrente
 https://github.com/C-rrente
